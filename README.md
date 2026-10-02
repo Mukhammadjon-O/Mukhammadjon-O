@@ -3,5 +3,4 @@ Obsidian user
 Can code on Python a lil bit
 
 Linus Torvalds is da GOAT 🗿  
-Just another no-name  
-Boring person  
+
